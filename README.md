@@ -1,1 +1,3 @@
-# briyantsigno1815-site
+# Briyant Solèy Signo 1815 Website
+
+Sit ofisyèl pou gwoup rara BSS Signo 1815.
